@@ -10,7 +10,7 @@ Trump's Day
 
 1 PM- Eats McDonald's.
 
-4 PM- Golf
+4 PM- Golfs
 
 7 PM- Trump Dance.
 
